@@ -222,4 +222,4 @@ please contact me through the links below:
 
 [GitHub](https://github.com/lenny-g) Profile
 
-Email: akhlaq.fahra@gmail.com
+Email: leanne_gallag@live.co.uk
